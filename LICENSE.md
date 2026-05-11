@@ -1,4 +1,4 @@
-
+Get the ultimate Bartender for macOS extension with top Extension for Bartender for macOS - performance-boost and privacy-protection. Featuring performance-boost and
 
 
 
